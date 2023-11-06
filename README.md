@@ -1,1 +1,1 @@
-# pracedomowe-j-zykR
+#R-w-statystyce-opisowej
